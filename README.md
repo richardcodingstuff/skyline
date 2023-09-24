@@ -40,4 +40,4 @@ Our dedicated team of real humans reviews all ads. We're committed to ensuring q
 
 Our rules are as solid as the city's foundations. We maintain a clean and respectful advertising environment.
 
-✨ **If you're tired of ads that are as intrusive as a street performer, join us at **Skyline Ads**, where ads are as captivating as the cityscape itself!
+✨ **If you're tired of ads that are as intrusive as a street performer, join us at **Skyline Ads**, where ads are as captivating as the cityscape itself!**
